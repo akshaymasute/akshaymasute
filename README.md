@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **akshay2079masute@gmail.com**
 
-- 📄 Know about my experiences [(https://drive.google.com/file/d/1PGla8SexoQ9E9OxIFxVVpkJBaTDX4B8I/view?usp=sharing)](https://drive.google.com/file/d/1PGla8SexoQ9E9OxIFxVVpkJBaTDX4B8I/view?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/16pUpan2ekLp2WfUgLDf89K18v6pwb-eM?usp=sharing](https://drive.google.com/drive/folders/16pUpan2ekLp2WfUgLDf89K18v6pwb-eM?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
